@@ -4,3 +4,5 @@
 Et oui c'était une licorne! l'enfant resta devant, petrifier de ce qu il venait de voir. tiraller entre le sentiment de tristesse et de joie (parce que les licornes c'est cool), il etait perdu.
 
 Il décida alors de chevaucher la licorne, il prit sont courage a deux mains et courru dans sa direction.La licorne prit peur et démarra au galot.C'était sans compter sur l'agilité très précoce de **Joachim** qui s'agrippa à la queue de la licorne. Cela plaisait beacoup à Julachim d'attrapper des queues mais regretta amérement d'avoir attrapper celle-ci.
+
+MIKE WAS THERE
