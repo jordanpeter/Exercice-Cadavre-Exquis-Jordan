@@ -19,3 +19,6 @@ nansai desu ka?
 anata no shumi wa nan desu ka?
 
 un deux trois petits canards
+
+Senen gowa sagashiteruuuuuuuuuuuuuuuuuuu !! Le comte millénaire revient !!
+
