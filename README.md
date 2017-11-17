@@ -39,3 +39,20 @@ Conduire ou choisir, il faut boire.
 =======
 Où est passé la licorne? J'en aurai bien besoin ! 
 >>>>>>> 1ce70eed14e44a70188d6cf0af96aac8519e36ae
+
+
+## Message de Bernard au nôble Jordan
+
+### But doc:
+
+Invitation au jeu web Forges Of Empire
+
+### Localisation
+
+Bernard alias "**Marchand de Frite**" joue sur le monde appelé __Parkog__
+
+###Conclusion
+
+Tu seras le bienvenue dans notre guilde dirigée par la Valeureuse **SophieEvere**
+
+------------fin bernard-----------
