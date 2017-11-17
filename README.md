@@ -6,3 +6,17 @@ Et oui c'était une licorne! l'enfant resta devant, petrifier de ce qu il venait
 Il décida alors de chevaucher la licorne, il prit sont courage a deux mains et courru dans sa direction.La licorne prit peur et démarra au galot.C'était sans compter sur l'agilité très précoce de **Joachim** qui s'agrippa à la queue de la licorne. Cela plaisait beacoup à Julachim d'attrapper des queues mais regretta amérement d'avoir attrapper celle-ci.
 
 MIKE WAS THERE
+
+
+ohayogozaimasu....
+
+anata no namae wa nan desu ka?
+
+doko kara kimashita ka?
+
+nansai desu ka?
+
+anata no shumi wa nan desu ka?
+
+
+
