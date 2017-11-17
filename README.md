@@ -31,3 +31,5 @@ The Invincible Iron Man
 
 
 **Iron Man** (*littéralement l'Homme de Fer*) est un super-héros de comic books créé en 1963 par **Stan Lee** pour **Marvel Comics**. Apparu pour la première fois dans Tales Of Suspense #39, la série était scénarisée par *Larry Lieber* et dessinée par Don Heck. À partir de 1968, le personnage a eu son propre comic book, *The Invincible Iron Man*, qui a été publié par **Marvel** jusqu'en 1996 avec le no 332.
+
+Où est passé la licorne? J'en aurai bien besoin ! 
