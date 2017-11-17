@@ -22,3 +22,4 @@ un deux trois petits canards
 
 Senen gowa sagashiteruuuuuuuuuuuuuuuuuuu !! Le comte millénaire revient !!
 
+ni shi shuo zhongwen?
